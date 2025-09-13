@@ -1,5 +1,5 @@
 
-分享几个Apple id网页
+分享几个Apple id网页，都是有人维护的，各个地区都有，也有小火箭账户
 
 https://free.mayun.us/
 
